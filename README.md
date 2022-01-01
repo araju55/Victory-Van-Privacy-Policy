@@ -1,2 +1,2 @@
-# Victory-Van-Privacy-Pplicy
+# Victory-Van-Privacy-Policy
 Victory Van Privacy Policy
